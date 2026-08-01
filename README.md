@@ -14,5 +14,5 @@ $\color{#c30001}{\textsf{edgar}}$ <br>
 <sup>$\color{#ffffff}{\textsf{masculine terms}}$</sup> <br>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[byi & dni (.cc)](https://pronouns.cc/@aheartwellending)ㅤ[crrd](https://7-trials.carrd.co)ㅤ[prns.page](https://en.pronouns.page/@j777ckpot)<br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[新book](https://aheartwellending.atabook.org)ㅤ[straw.page](https://a-heartwell-ending.straw.page)ㅤㅤㅤ<br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[新book](https://aheartwellending.atabook.org)ㅤ[straw.page](https://a-heartwell-ending.straw.page)ㅤㅤ<br>
 ㅤ<br>
