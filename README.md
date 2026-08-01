@@ -6,7 +6,7 @@
 
 <p align="center">
 $\color{#c30001}{\textsf{gerard, dominik}}$
-<sup>$\color{#ffffff}{\textsf{ㅤorㅤ}}$</sup>
+<sup>$\color{#BBB59F}{\textsf{ㅤorㅤ}}$</sup>
 $\color{#c30001}{\textsf{edgar}}$ <br>
 <sub>$\color{#ffffff}{\textsf{deceased since 2007}}$</sub> <br>
 <sup>$\color{#ffffff}{\textsf{he/him}}$</sup>
