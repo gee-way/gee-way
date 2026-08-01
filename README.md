@@ -5,9 +5,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ<img src="https://files.catbox.moe/t8onnt.png" width="350" height="~" align="~" hspace="0" alt="gee"/> <br>
 
 <p align="center">
-$\color{#c30001}{\textsf{gerard, dominik}}$
+$\color{#c30001}{\textsf{gerard, skips}}$
 <sup>$\color{#BBB59F}{\textsf{ㅤorㅤ}}$</sup>
-$\color{#c30001}{\textsf{skips}}$ <br>
+$\color{#c30001}{\textsf{dominik}}$ <br>
 <sub>$\color{#ffffff}{\textsf{deceased since 2007}}$</sub> <br>
 <sup>$\color{#ffffff}{\textsf{he/him}}$</sup>
 <sup>$\color{#c30001}{\textsf{ㅤ+ㅤ}}$</sup>
