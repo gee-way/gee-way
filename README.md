@@ -2,7 +2,7 @@
 <p align="center">
 <img src="https://api.visitorbadge.io/api/visitors?path=gee-way&label=bullets&labelColor=000000&countColor=000000&style=flat"> <br>
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://files.catbox.moe/t8onnt.png" width="350" height="~" align="~" hspace="0" alt="gee"/> <br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://files.catbox.moe/t8onnt.png" width="350" height="~" align="~" hspace="0" alt="gee"/> <br>
 
 <p align="center">
 $\color{#c30001}{\textsf{gerard, dominik}}$
