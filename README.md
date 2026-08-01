@@ -13,6 +13,6 @@ $\color{#c30001}{\textsf{edgar}}$ <br>
 <sup>$\color{#c30001}{\textsf{ㅤ+ㅤ}}$</sup>
 <sup>$\color{#ffffff}{\textsf{masculine terms}}$</sup> <br>
 
-[新book](https://aheartwellending.atabook.org)ㅤ[straw.page](https://a-heartwell-ending.straw.page) <br>
-<sup>\* *strawpage is a huge wip, but you're welcome to leave a message/draw on it* : )</sup>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[byi & dni (.cc)](https://aheartwellending.atabook.org)<br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[新book](https://aheartwellending.atabook.org)ㅤ[straw.page (wip)](https://a-heartwell-ending.straw.page) <br>
 ㅤ<br>
