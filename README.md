@@ -2,7 +2,7 @@
 <p align="center">
 <img src="https://api.visitorbadge.io/api/visitors?path=gee-way&label=bullets&labelColor=000000&countColor=000000&style=flat"> <br>
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ<img src="https://files.catbox.moe/ask54v.png" width="150" height="~" align="~" hspace="0" alt="gee"/> <br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ<img src="https://files.catbox.moe/ask54v.png" width="125" height="~" align="~" hspace="0" alt="gee"/> <br>
 
 <p align="center">
 $\color{#EC1524}{\textsf{gerard, skips}}$
