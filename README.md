@@ -15,6 +15,8 @@ $\color{#EC1524}{\textsf{dominik}}$ <br>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[byi & dni (.cc)](https://pronouns.cc/@7-trials)ㅤ[crrd](https://7-trials.carrd.co)ㅤ[prns.page](https://en.pronouns.page/@j777ckpot)<br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[新book](https://three-cheers.atabook.org)ㅤ[straw.page](https://a-heartwell-ending.straw.page) <br>
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[< frankie 3](https://github.com/frankly-iero) <br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[< G + F 3](https://my-frerard-romance.straw.page) <br>
 ㅤ<br>
 ㅤ<br>
