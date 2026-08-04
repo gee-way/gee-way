@@ -17,6 +17,6 @@ $\color{#EC1524}{\textsf{dominik}}$ <br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[新book](https://three-cheers.atabook.org)ㅤ[straw.page](https://a-heartwell-ending.straw.page) <br>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[< frankie 3](https://github.com/frankly-iero) <br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[< G + F 3](https://my-frerard-romance.straw.page) <br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[< G + F 3](https://my-frerard-romance.straw.page) <br>
 ㅤ<br>
 ㅤ<br>
